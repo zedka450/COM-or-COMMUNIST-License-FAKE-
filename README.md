@@ -1,0 +1,2 @@
+# COM-or-COMMUNIST-License-FAKE-
+A fake LICENSE
